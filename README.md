@@ -1,4 +1,4 @@
-Yazılım mühendisliği oryantasyon ile ilgili video
+Yazılım mühendisliği oryantasyon ile ilgili
 
 Amine Ceren YİĞİT
 250541048
